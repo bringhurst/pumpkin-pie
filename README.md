@@ -22,8 +22,8 @@
 5. Set oven to 300F.
 6. Gently mix eggs, yolks, vanilla extract, pumpkin mash, spices, and sugar, then set aside.
 7. Scald the milk and heavy cream together with a pinch of salt.
-8. While mixing, slowly pour the scalded milk into the egg mixture.
-9. Whisk the mixture for 2 minutes.
+8. While mixing the egg mixture, slowly pour the scalded milk into the egg mixture. Do not allow the milk to cook the eggs.
+9. Whisk the combined mixture for 2 minutes.
 10. Pour mixture into pie crust -- use a measuring cup to pour the remaining mixture in after placing into the oven to reduce spillage.
 11. Cook until center is 185F and immediately remove from oven (approx 1 hour and 20 minutes).
 12. Let sit at room temperature to cool for 2 hours.
