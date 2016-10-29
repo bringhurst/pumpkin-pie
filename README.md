@@ -1,5 +1,7 @@
 # Pumpkin Custard Pie!
 
+## Ingredients
+
 * 1 regular frozen pie crust
 * 0.75 cups of full fat milk
 * 0.75 cups of heavy cream
@@ -10,6 +12,8 @@
 * 1/2 teaspoon vanilla extract
 * 1/2 cup of sugar
 * 1/2 teaspoon cinnamon
+
+## Step-by-step
 
 1. Preheat the oven to 375F and blind bake the frozen pie crust for 10 minutes on a baking sheet.
 2. Remove pie crust from oven and poke holes in the air bubbles on the bottom of the crust.
