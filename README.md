@@ -4,8 +4,7 @@
 
 ## Ingredients
 
-* 1/4 cup butter
-* 1/4 cup shortening
+* 4 oz Lard
 * 1/2 cup sugar
 * 1 egg
 * 1 tsp vanilla
