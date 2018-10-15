@@ -5,7 +5,7 @@
 ## Ingredients
 
 * 4 oz Lard
-* 1/2 cup sugar
+* 5oz Sugar
 * 1 egg
 * 1 tsp vanilla
 * 1 1/2 cups flour
