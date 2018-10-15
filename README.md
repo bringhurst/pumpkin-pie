@@ -47,3 +47,16 @@
 8. Reduce oven to 325 F until center is 190F and immediately remove from oven.
 9. Let sit at room temperature to cool for 2 hours.
 10. Let set in refrigerator overnight.
+
+# Topping
+
+## Ingredients
+
+* 1 cup heavy cream
+* 1 tbsp unsweetened cocoa powder
+* 2 tbsp sugar
+
+## Step-by-step
+
+1. Whip it. Whip it good.
+2. See step 1.
