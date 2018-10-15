@@ -41,7 +41,7 @@
 4. While mixing the egg mixture, slowly pour the scalded milk into the egg mixture. Do not allow the milk to cook the eggs.
 5. Whisk the combined mixture well.
 6. Pour mixture into pie crust -- use a measuring cup to pour the remaining mixture in after placing into the oven to reduce spillage.
-7. Bake for until center is 190F and immediately remove from oven (about 45 minutes).
+7. Bake for until center is 190F (about 45 minutes).
 8. Let sit at room temperature to cool for 2 hours.
 
 # Topping
