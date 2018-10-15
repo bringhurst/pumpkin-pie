@@ -37,7 +37,7 @@
 
 1. Preheat oven to 450 F
 2. Mix eggs, yolks, vanilla extract, pumpkin mash, spices, and sugar, then set aside.
-3. Scald the milk and heavy cream together with a pinch of salt.
+3. Add the salt to the heavy cream and scald.
 4. While mixing the egg mixture, slowly pour the scalded milk into the egg mixture. Do not allow the milk to cook the eggs.
 5. Whisk the combined mixture well.
 6. Pour mixture into pie crust -- use a measuring cup to pour the remaining mixture in after placing into the oven to reduce spillage.
