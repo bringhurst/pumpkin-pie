@@ -1,8 +1,30 @@
 # Pumpkin Custard Pie!
 
+# Crust
+
 ## Ingredients
 
-* 1 regular frozen pie crust
+* 1/4 cup butter
+* 1/4 cup shortening
+* 1/2 cup sugar
+* 1 egg
+* 1 tsp vanilla
+* 1 1/2 cups flour
+* 1 tsp baking powder
+
+## Step-by-step
+
+1. Mix sugar and butter until light and fluffy.
+2. Mix in the egg and vanilla.
+3. Roll out the dough on parchment paper until 1/4 inch thickness.
+4. Insert crust into pie pan and trim/crimp edges.
+5. Blind bake at 350 F for 8 minutes.
+6. Wait until completely cooled before filling.
+
+# Filling
+
+## Ingredients
+
 * 0.75 cups of full fat milk
 * 0.75 cups of heavy cream
 * 1 pinch of salt
