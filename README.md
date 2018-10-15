@@ -5,7 +5,7 @@
 ## Ingredients (One Crust)
 
 * 4 oz Lard
-* 5oz Sugar
+* 5 oz Organic Sugar (high natural molasses content)
 * 1 egg
 * 1 tsp vanilla
 * 8 oz bread flour
