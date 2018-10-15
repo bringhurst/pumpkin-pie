@@ -42,7 +42,7 @@
 5. Whisk the combined mixture well.
 6. Pour mixture into pie crust -- use a measuring cup to pour the remaining mixture in after placing into the oven to reduce spillage.
 7. Cook for 15 minutes.
-8. Reduce oven to 325 F until center is 190F and immediately remove from oven.
+8. Reduce oven to 300 F until center is 190F and immediately remove from oven.
 9. Let sit at room temperature to cool for 2 hours.
 10. Let set in refrigerator overnight.
 
