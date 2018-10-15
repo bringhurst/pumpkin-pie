@@ -24,8 +24,7 @@
 
 ## Ingredients
 
-* 1/2 cup of whole milk
-* 1 cup of heavy cream
+* 1.5 cups of heavy cream
 * 1/2 teaspoon salt
 * 1 cup of mashed pumpkin (approx 1/2 of a 16oz can)
 * 2 eggs
