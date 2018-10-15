@@ -8,7 +8,7 @@
 * 5oz Sugar
 * 1 egg
 * 1 tsp vanilla
-* 1 1/2 cups flour
+* 1 1/2 cups bread flour
 * 1 tsp baking powder
 
 ## Step-by-step
