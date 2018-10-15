@@ -2,7 +2,7 @@
 
 # Crust
 
-## Ingredients
+## Ingredients (One Crust)
 
 * 4 oz Lard
 * 5oz Sugar
@@ -13,8 +13,8 @@
 
 ## Step-by-step
 
-1. Mix sugar and butter until light and fluffy.
-2. Mix in the egg and vanilla.
+1. Mix sugar and lard, egg, and vanilla until light and fluffy.
+2. Slowly mix in the flour and baking powder
 3. Roll out the dough on parchment paper until 1/4 inch thickness.
 4. Insert crust into pie pan and trim/crimp edges.
 5. Blind bake at 350 F for 10 minutes.
