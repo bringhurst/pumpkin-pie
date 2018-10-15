@@ -53,6 +53,7 @@
 * 1 cup heavy cream
 * 1 tbsp unsweetened cocoa powder
 * 2 tbsp sugar
+* 1/4 teaspoon vanilla extract
 
 ## Step-by-step
 
