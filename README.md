@@ -58,5 +58,5 @@
 
 ## Step-by-step
 
-1. Whip it. Whip it good. Keep whipping until you heave stiff peaks.
+1. Whip it. Whip it good. Keep whipping until you have slightly stiff peaks.
 2. See step 1.
