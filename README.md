@@ -1,8 +1,10 @@
 # Pumpkin Custard Pie!
 
+All measurements are for one 9 inch pie.
+
 # Crust
 
-## Ingredients (One Crust)
+## Ingredients
 
 * 4 oz Lard
 * 5 oz Organic Sugar (high natural molasses content)
