@@ -17,6 +17,7 @@
 2. Slowly mix in the flour and baking powder
 3. Roll out the dough on parchment paper until 1/4 inch thickness.
 4. Insert crust into pie pan and trim/crimp edges.
+5. Cover crust edges tightly with tin foil.
 5. Blind bake at 350 F for 10 minutes (no pie weights should be needed).
 6. Allow at least 10 minutes to cool before filling.
 
@@ -35,14 +36,16 @@
 
 ## Step-by-step
 
-1. Preheat oven to 350 F
+1. Preheat oven to 450 F
 2. Mix eggs, yolks, vanilla extract, pumpkin mash, spices, and sugar, then set aside.
 3. Add the salt to the heavy cream and scald.
 4. While mixing the egg mixture, slowly pour the scalded milk into the egg mixture. Do not allow the milk to cook the eggs.
 5. Whisk the combined mixture well.
 6. Pour mixture into pie crust -- use a measuring cup to pour the remaining mixture in after placing into the oven to reduce spillage.
-7. Bake for until center is 190F (about 45 minutes).
-8. Let sit at room temperature to cool for 2 hours.
+7. Make sure the edges are still covered with tin foil.
+8. Bake for 15 minutes and reduce temperature to 350 F.
+9. Bake for until center is 190F (about 45 minutes).
+10. Let sit at room temperature to cool for 2 hours.
 
 # Topping
 
