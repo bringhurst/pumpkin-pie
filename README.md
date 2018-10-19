@@ -48,6 +48,7 @@ All measurements are for one 9 inch pie.
 8. Bake for 15 minutes and reduce temperature to 350 F.
 9. Bake for until center is 190F (about 45 minutes).
 10. Let sit at room temperature to cool for 2 hours.
+11. Dust with confectioners sugar.
 
 # Topping
 
